@@ -1,2 +1,2 @@
 trhruytjuy
-網路上
+接收網路上
